@@ -1,0 +1,1 @@
+esta pagina recolecta datos 
